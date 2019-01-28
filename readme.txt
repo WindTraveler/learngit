@@ -1,1 +1,1 @@
-Today is a funny day.
+Today is a funny dayy.
